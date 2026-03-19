@@ -1,1 +1,1 @@
-# Zaynxxii-ai-news-daily1
+# ai-news-daily1
